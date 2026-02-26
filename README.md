@@ -1,0 +1,1 @@
+# HW_of_Generative-AI-applications
